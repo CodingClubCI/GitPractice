@@ -1,0 +1,1 @@
+In attendance on 11/9/2022 we had Ryan Blau, Muthana Alhadrab, Emily Freko, and Ryan Barnard
